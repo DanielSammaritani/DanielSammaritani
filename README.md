@@ -1,4 +1,4 @@
-## Hi there! 👋 I'm [Il Tuo Nome]
+## Hi there! 👋 I'm Daniel
 
 I am an incoming University student majoring in **Statistics with Finance**. 
 
